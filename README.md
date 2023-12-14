@@ -10,4 +10,4 @@ Chapter08 - Shivani
 Chapter09 - Manisha  
 Chapter10 - Sangeeta  
 Chapter11 - Shruti  
-Chapter12 - Neha Rao  
+Chapter12 - Neha Kumari  
